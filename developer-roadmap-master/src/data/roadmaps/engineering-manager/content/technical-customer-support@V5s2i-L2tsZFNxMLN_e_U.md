@@ -1,1 +1,0 @@
-# Technical customer support

@@ -1,1 +1,0 @@
-# Team Structure and Design

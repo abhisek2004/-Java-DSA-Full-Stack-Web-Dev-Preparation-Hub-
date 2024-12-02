@@ -1,1 +1,0 @@
-# Product strategy alignment

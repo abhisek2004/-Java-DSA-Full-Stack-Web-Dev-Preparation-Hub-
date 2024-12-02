@@ -1,1 +1,0 @@
-# Cross-functional Collaboration

@@ -1,1 +1,0 @@
-# EM vs Tech Lead vs IC

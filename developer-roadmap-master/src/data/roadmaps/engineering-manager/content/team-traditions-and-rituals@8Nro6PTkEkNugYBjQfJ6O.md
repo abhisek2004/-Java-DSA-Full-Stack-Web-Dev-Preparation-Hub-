@@ -1,1 +1,0 @@
-# Team Traditions and Rituals
